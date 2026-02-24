@@ -1,0 +1,18 @@
+- Morning prayer~~
+- Morning devotion~~
+- Hydrate~~
+- 30 min incline walking
+- Shadow boxing
+- Kettlebell workout~~
+- Breakfast~~
+- Supplements~~
+- Lunch~~
+- Creatine~~
+- 30 min incline walking~~
+- Workout
+- Dinner~~
+- Magnesium~~
+- 30 min incline walking~~
+- Learn Chinese~~
+- Study~~
+- Evening prayer~~
